@@ -1,1 +1,1 @@
-# rsschool-cv
+<https://batruk123.github.io/rsschool-cv/>
